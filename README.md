@@ -1,1 +1,0 @@
-# Tret.-galary
